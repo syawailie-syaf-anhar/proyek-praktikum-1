@@ -1,3 +1,3 @@
-hi my nama Syawailie Syaf Anhar
+hi my name Syawailie Syaf Anhar
 
 NIM : 24091397053
